@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @McBushi
+- 👀 I’m interested in becoming a special effects artist
+- 🌱 I’m currently learning about coding
+- 💞️ I’m looking to collaborate on new movies
